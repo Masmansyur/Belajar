@@ -1,2 +1,2 @@
 # Belajar
-Masih belajar
+Masih belaja
